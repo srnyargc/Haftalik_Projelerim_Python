@@ -1,1 +1,0 @@
-# Haftalik_Projelerim
